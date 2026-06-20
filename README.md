@@ -4,8 +4,7 @@
 
 - 📫 How to reach me **=> nishant45p@gmail.com**
 
-- 📄 Resume  [https://drive.google.com/file/d/16AeCEZxz4ER4Y53QhBnGfu044wUmNHwP/view?usp=drivesdk]
-- (https://drive.google.com/file/d/1buANUAAhABxNwHA3gXHUwgUe-wRd7I-G/view?usp=drivesdk)
+- 📄 Resume - (https://drive.google.com/file/d/1buANUAAhABxNwHA3gXHUwgUe-wRd7I-G/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
